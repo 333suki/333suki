@@ -1,4 +1,4 @@
-# ✨ About Me:
+# 🎀 About Me:
 🌸 Hi, i'm Suki ♡<br>🌺 I love tech and computers ♡<br>🌷 Passionate Computer Science student ♡
 
 
